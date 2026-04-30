@@ -343,8 +343,8 @@ Day 7 → GitHub Upload & Documentation.
 
 ### **Name: Srija Chatterjee**
 
-GitHub: (Paste your GitHub link here)
+GitHub: https://github.com/Srija-Chatterjee-2005
 
-LinkedIn: (Paste your LinkedIn link here)
+LinkedIn: https://www.linkedin.com/in/srija-chatterjee-82a539308?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 ---
